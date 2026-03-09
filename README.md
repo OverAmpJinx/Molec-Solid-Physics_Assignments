@@ -1,0 +1,1 @@
+Glauben sie, dass ich verrückt bin? Diese Frage stellte mir Elon Musk gegen Ende eines langen Abendessens in einem edlen Fischrestaurant im Silicon Valley. Ich war zuerst dort und hatte es mir mit einem Gin Tonic gemütlich gemacht, weil ich wusste, dass Musk, wie üblich, zu spät kommen würde.
